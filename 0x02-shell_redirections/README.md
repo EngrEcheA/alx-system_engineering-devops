@@ -17,3 +17,4 @@ What's next?
 I hate bins
 I hate bins
 Letters only please
+A to A
